@@ -2,14 +2,15 @@
 
 <H2>Ingredients</H2>
 
-- (500 grams?) 2 cups flour
+- (500 grams?) 5/3 cups flour
 - 1 tablespoon Cinnamon
 - 1 teaspoon baking soda
 - 1 cup butter
 - (grams?) 1 cup firmly packed light brown sugar
 - 2 eggs
 - 1 teaspoon Vanilla Extract
-- 2 cups quick-cooking oats 
+- 8/3 cups quick-cooking oats 
+- 2/3 cup chocolate chips
 
 <h2>Directions</h2>
 
